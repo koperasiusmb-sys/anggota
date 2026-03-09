@@ -1,2 +1,0 @@
-# anggota
-ANGGOTA SAHAM KUSMB
